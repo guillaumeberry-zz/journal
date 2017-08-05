@@ -1,2 +1,0 @@
-# journal
-Notes &amp; ideas
